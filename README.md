@@ -23,3 +23,6 @@ Programas con funciones
 ![image](https://github.com/user-attachments/assets/81abaac7-74e3-4f01-9838-05e2489c81f1)
 ![image](https://github.com/user-attachments/assets/1d30d114-bd71-4151-8cd4-2ae9ad53d3bc)
 
+# Programa #6
+![image](https://github.com/user-attachments/assets/3224e51f-e3ea-442d-88db-baeef8dcce4c)
+![image](https://github.com/user-attachments/assets/a047a202-4487-4723-af21-e73721a866d4)
