@@ -31,3 +31,22 @@ Programas con funciones
 # Programa #7
 ![image](https://github.com/user-attachments/assets/ff919dc3-8bbf-45c0-8ea5-c7e8082ea4ce)
 ![image](https://github.com/user-attachments/assets/f590a222-a41c-4d0f-874f-cba46ff4f113)
+
+# Programa #8
+![image](https://github.com/user-attachments/assets/df2dfb52-a483-44a2-a5a7-d3616de7620c)
+![image](https://github.com/user-attachments/assets/e5aca015-cd04-4544-bba1-332ef6854814)
+
+# Programa #9
+![image](https://github.com/user-attachments/assets/c8504ee3-62f9-4b8c-be19-c401d0219645)
+![image](https://github.com/user-attachments/assets/183492bb-0ece-45a9-9105-0f49c6219f4f)
+
+![image](https://github.com/user-attachments/assets/29c6fca5-ad07-42a3-89b5-8978109c9caf)
+![image](https://github.com/user-attachments/assets/11ee283d-6285-4619-ab51-c87e5749058b)
+
+# Programa #10
+![image](https://github.com/user-attachments/assets/b2fde56a-4092-4805-82b0-c1e91d9618e0)
+![image](https://github.com/user-attachments/assets/205c755c-7f86-4279-bb16-0ddc111f05e2)
+
+# Programa #11
+![image](https://github.com/user-attachments/assets/386716dc-1ef3-4e28-921e-34c2aed0546a)
+![image](https://github.com/user-attachments/assets/fa7ba8f0-9072-4a67-a9d7-d4b98b4e9d72)
